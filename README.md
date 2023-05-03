@@ -1,2 +1,0 @@
-# ragnarep
-comissions for ragnarok
